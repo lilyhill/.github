@@ -1,4 +1,4 @@
-Make Something Delightful ❤️
+Make it Delightful ❤️
 
 
 <!--
